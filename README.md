@@ -5,17 +5,15 @@
 ## EDUCATION
 
   **BACHELOR IN GAMEDEC: SECOND-GENERATION HUMANITIES**
-  Studying Game Design, I am leading the development oF several interactive projects, honing my skills in game mechanics, storytelling, and user experience design.Through hands-on experience, I mastered project management techniques, ensuring timely delivery and quality outcomes.
+  Studying Game Design, I am leading the development oF several interactive projects, honing my skills in **game mechanics, storytelling**, and **user experience design**. Through hands-on experience, I mastered **project management** techniques, ensuring timely delivery and quality outcomes.
 
   
   **6-MONTH CHINESE LEARNING PROGRAM**
-  hgghhg
+  Benefitted from the **Taiwan Ministry of Education Scholarship (Huayu Enrichment Scholarship)** to pursue intensive studies in Chinese language and culture. Engaged in immersive language learning, cultural exploration, and academic pursuits, enhancing linguistic proficiency and cross-cultural understanding.
   
-  **BACHELOR IN APPLIED LINGUISTICS RUSSIAN AND CHINESE**
-  
-ereerere
+  **BACHELOR IN APPLIED LINGUISTICS RUSSIAN AND CHINESE**Studied Russian and Chinese languages intensively, focusing on linguistic structures and cultural contexts. **Co-founded a Scientific circle of Bydgoszcz Sinologists** to explore culture phenomena in both Taiwan and China. Developed strong linguistic proficiency, analytical skills, and cultural sensitivity essential for effective crosscultural communication. I passed the **TOCFL certificate** Level 1.
 
-## WORK EXPERIENCE
+## EXPERIENCE
 
 
 ### APPRENTICESHIP
