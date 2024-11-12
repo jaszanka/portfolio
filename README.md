@@ -6,15 +6,15 @@
 
   **BACHELOR IN GAMEDEC: SECOND-GENERATION HUMANITIES**
   
-  Studying Game Design, I am leading the development oF several interactive projects, honing my skills in game mechanics, storytelling, and user experience design.Through hands-on experience, I mastered project management techniques, ensuring timely delivery and quality outcomes.
+ Studying Game Design, I am leading the development oF several interactive projects, honing my skills in game mechanics, storytelling, and user experience design.Through hands-on experience, I mastered project management techniques, ensuring timely delivery and quality outcomes.
 
   
   **6-MONTH CHINESE LEARNING PROGRAM**
-  
+  hgghhg
   
   **BACHELOR IN APPLIED LINGUISTICS RUSSIAN AND CHINESE**
   
-
+ereerere
 
 ## WORK EXPERIENCE
 
